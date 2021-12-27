@@ -1,1 +1,1 @@
-iftmuniversitybusdetails.000webhost.com
+suryanahspratapsingh.me
